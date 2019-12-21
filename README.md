@@ -1,2 +1,2 @@
-# homework 6
+# all homeworks
 
